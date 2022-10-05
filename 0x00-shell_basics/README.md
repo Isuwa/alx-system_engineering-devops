@@ -1,1 +1,1 @@
-Read write and learn
+Read through
