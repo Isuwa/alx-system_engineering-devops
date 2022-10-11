@@ -1,0 +1,1 @@
+Guideliness for variable
